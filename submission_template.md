@@ -2,7 +2,7 @@
 
 ## Candidate
 - Emtital Malik
-- Approximate time spent: 
+- Approximate time spent: ~2 hours (exclusing breaks)
 
 ---
 
